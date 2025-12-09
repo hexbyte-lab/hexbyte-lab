@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi! I’m Rafi 👋,<br>I like coding a I'm a lifelong learner.
+Hi! I’m Rafi 👋, a lifelong learner.
 
 
 ## 🌐 Socials:
