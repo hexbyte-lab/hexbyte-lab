@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi! I’m Rafi 👋, I'm trying to get at coding.
+trying to get good at coding.
 
 
 ## 🌐 Socials:
